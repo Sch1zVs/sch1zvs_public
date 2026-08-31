@@ -1,2 +1,2 @@
-# sch1zvs_public
-none
+# Sch1zVs
+Chuj wie co tu tak prawilnie mialo byc, bawie sie pozdro
